@@ -1,2 +1,2 @@
-# Xavier-Richmond-Taylor
-My personal respository
+Hi everyone, I'm Xavier 👋🏾
+🧑🏾‍💻⚽️ About Me 
